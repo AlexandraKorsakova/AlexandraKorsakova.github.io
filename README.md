@@ -1,2 +1,2 @@
 
-My new CV will be here soo
+My new CV will be here soon
